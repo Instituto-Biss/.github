@@ -2,4 +2,4 @@
 
 Um projeto que auxilia na causa social há mais de 20 anos.
 
-**Instagram**: https://www.instagram.com/institutobiss/
+**Nosso Instagram**: [@institutobiss](https://www.instagram.com/institutobiss)
